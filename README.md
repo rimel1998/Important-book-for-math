@@ -1,5 +1,4 @@
 # Important-book-for-math
-https://www.youtube.com/watch?v=GwVDCi8CCAI&list=PL4PCksYQGLJOcaPLgeMFaxaHigPFjBuTG&index=3
 
 
 # Math Related Books List
